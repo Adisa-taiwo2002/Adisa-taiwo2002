@@ -19,3 +19,5 @@ I explore data, uncover trends, identify business opportunities and communicate 
 Building practical data analytics projects, strengthening my technical skills and growing my portfolio.
 
 Let's connect, collaborate and turn data into insights!
+Linkedln:www.linkedin.com/in/adisa-taiwo-temitope-a81964416
+Email:adisataiwo550@gmail.com
